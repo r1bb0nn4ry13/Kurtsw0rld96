@@ -1,4 +1,4 @@
-https://tenor.com/view/kurt-kunkle-gif-25975585 " . ; Hallo ! .
+" . ; Hallo ! .
 " . ; Huge Djo and Kurt Kunkle from Spree fan >:) > ,
 " . ; I draw sometimes rawrrr > ,
 " . ; DNI if you vent and we aren't close friends > ,
