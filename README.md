@@ -1,3 +1,4 @@
+<a href="https://ibb.co/QDtYzKr"><img src="https://i.ibb.co/0svY8Gh/wolfish-willow-kurt-kunkle.gif" alt="wolfish-willow-kurt-kunkle" border="0"></a>
 - hihi!! my name is either kurt, harley, steve, djo [pronounced joe], or audric !! take ur pick rawrrrr B)
 
 - ur prob here from pony town so erm heres things u should know byi !!
